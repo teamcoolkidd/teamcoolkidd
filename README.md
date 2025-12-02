@@ -1,2 +1,7 @@
 
-Mein Gott Leute, meine Mama hat mir einfach erlaubt dass ich Cola trinken darf! Wie cool ist das bitte? Jetzt zocke ich Fortnite und trinke Cola! YIPPEE!
+<p align="center">
+<img src="https://github.com/user-attachments/assets/ccdb23ff-1ad6-4ec9-8950-138f411f9d40" width="160" />
+</p>
+
+<p align="center">
+<b>007N7 FICTKIN . DOUBLES ARENT REAL COME KISS ME</b>
