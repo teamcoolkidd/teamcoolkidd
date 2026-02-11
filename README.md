@@ -4,4 +4,5 @@
 </p>
 
 <p align="center">
-<b>007N7 FICT . DOUBLES ARENT REAL COME KISS ME</b>
+$\text{\color{#D12D40}007N7 FICT . DOUBLES ARENT REAL COME KISS ME}$
+
